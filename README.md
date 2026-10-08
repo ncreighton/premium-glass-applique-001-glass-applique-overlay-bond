@@ -1,0 +1,2 @@
+# premium-glass-applique-001-glass-applique-overlay-bond
+Tired of losing track of your glass applique formulas, overlay bond ratios, and client commissions in a sea of sticky notes and scattered files? The Glass Applique &amp; Overlay Bond Craft Lab brings all your craft data into one organized Notion workspace.  This Notion template eliminates the chaos of managing multiple projects, formulas, and client de
